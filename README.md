@@ -1,1 +1,0 @@
-https://iwolga2017.github.io/test-cv/cv
